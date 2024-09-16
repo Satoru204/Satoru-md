@@ -36,7 +36,9 @@
 ### SERVER 2 
 ### GET SESSION ID HERE ( Replit) 
 
-<a href="https://replit.com/@iamdeeceex/QueenAnita-Md-session-generator"><img src="https://img.shields.io/badge/SESSION-ID-red" alt="Click Here to Get Pair-Code" width="110"></a>   
+𝑷𝑨𝑷𝑨×𝑰𝑮𝑾𝑬✨
+Loading… ███████] 99%.         𝐂𝐑𝐄𝐀𝐓𝐈𝐎𝐍 𝐄𝐓 𝐃𝐄𝐕𝐄𝐋𝐎𝐏𝐄𝐌𝐄𝐍𝐓 𝐃𝐈𝐆𝐈𝐓𝐀𝐋 --------------× 𝒊𝒈𝒘𝒆-𝒕𝒆𝒄𝒉🕷️ ʙʀᴇᴀᴄᴋ ʏᴏᴜʀ sᴇʟғ ᴀɴᴅ ᴄʜᴇᴄᴋ ᴍᴏᴜᴠᴍᴇɴᴛ⛓‍💥
+  
 
 
 
